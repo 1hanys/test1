@@ -1,2 +1,2 @@
-20223207 Yoonseo Han   
+Yoonseo Han 20223207  
 Kookmin Univ. AI
